@@ -1,2 +1,2 @@
-# kado
+# buat naka
 -
